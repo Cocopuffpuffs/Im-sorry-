@@ -11,5 +11,5 @@ i also wanna make it clear that im not comfortable talking about dave or going i
 i know some people might not forgive me, and i understand that. i'm not expecting everyone to forget what happened just because im apologizing. i just wanted to be honest about my mistakes and apologize to the people i've hurt. i know i could've handled things differently, and i hope that with time, i can show through my actions that i'm genuinely trying to do better.
 
 
-Since u guys keep calling me "white" [<img width="400" height="300" alt="image" src="https://github.com/user-attachments/assets/db012efb-1ef4-4283-8927-3ebd655c0664" />
+since some of you keep calling me ‘white’ even though i'm black, i just wanted to show you this and clear things up [<img width="400" height="300" alt="image" src="https://github.com/user-attachments/assets/db012efb-1ef4-4283-8927-3ebd655c0664" />
 ](https://media.discordapp.net/attachments/1424746894285996136/1562229424823214200/lv_0_20261020171121-ezgif.com-mute-video.gif?ex=6ad93b07&is=6ad7e987&hm=ce2aba493f165ff75e5aa6f05eee2b7d43f0c9cecd355142b1ee2ff282748801&=)
