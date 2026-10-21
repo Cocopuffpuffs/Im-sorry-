@@ -22,4 +22,5 @@ Thank you for anyone who took the time to read this <3
 
 
 PROOF IM A POC > 
-[https://media.discordapp.net/attachments/1424746894285996136/1562229424823214200/lv_0_20261020171121-ezgif.com-mute-video.gif?ex=6ad93b07&is=6ad7e987&hm=ce2aba493f165ff75e5aa6f05eee2b7d43f0c9cecd355142b1ee2ff282748801&=](https://discord.com/channels/@me/1424746894285996136)
+[[https://media.discordapp.net/attachments/1424746894285996136/1562229424823214200/lv_0_20261020171121-ezgif.com-mute-video.gif?ex=6ad93b07&is=6ad7e987&hm=ce2aba493f165ff75e5aa6f05eee2b7d43f0c9cecd355142b1ee2ff282748801&=](https://discord.com/channels/@me/1424746894285996136)
+](https://media.discordapp.net/attachments/1424746894285996136/1562229424823214200/lv_0_20261020171121-ezgif.com-mute-video.gif?ex=6ad93b07&is=6ad7e987&hm=ce2aba493f165ff75e5aa6f05eee2b7d43f0c9cecd355142b1ee2ff282748801&=)
