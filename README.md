@@ -18,7 +18,8 @@ im not expecting everyone to forgive me or suddenly agree with my side. i unders
 
 me and kit are still healing from what happened to us, and we're trying our best to move forward and become better people. we've promised each other that we won't repeat these mistakes, and we genuinely want to do better from now on. im sorry to everyone i've hurt, and i hope that, with time, i can show through my actions that i mean that. 
 
+Thank you for anyone who took the time to read this <3
 
 
-
-PROOF IM A POC > [https://cdn.discordapp.com/attachments/1424746894285996136/1562229424823214200/lv_0_20261020171121-ezgif.com-mute-video.gif?ex=6ad93b07&is=6ad7e987&hm=ce2aba493f165ff75e5aa6f05eee2b7d43f0c9cecd355142b1ee2ff282748801](https://media.discordapp.net/attachments/1424746894285996136/1562229424823214200/lv_0_20261020171121-ezgif.com-mute-video.gif?ex=6ad93b07&is=6ad7e987&hm=ce2aba493f165ff75e5aa6f05eee2b7d43f0c9cecd355142b1ee2ff282748801&=)
+PROOF IM A POC > 
+https://media.discordapp.net/attachments/1424746894285996136/1562229424823214200/lv_0_20261020171121-ezgif.com-mute-video.gif?ex=6ad93b07&is=6ad7e987&hm=ce2aba493f165ff75e5aa6f05eee2b7d43f0c9cecd355142b1ee2ff282748801&=
